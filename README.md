@@ -1,6 +1,6 @@
 # 👋 Hi, I'm Md. Tahmid Ahmed Habib
 
-## 🚀 Project Manager | ML & AI Developer | Full-Stack Builder | Entrepreneur
+## 🚀 Project Manager | ML & AI Developer | Entrepreneur
 
 ---
 
